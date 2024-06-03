@@ -1,6 +1,7 @@
-[Read Docus 1st. If still, then STACKOVERFLOW CURES MY PROBLEM. Ans other q to build my karma ](https://stackoverflow.com/users/saves/18984980/all) [🐍👨🏾‍💻](https://colab.research.google.com/)
+[Read Docus 1st. If still, then STACKOVERFLOW CURES MY PROBLEM. Ans other q to build my karma ](https://stackoverflow.com/users/saves/18984980/all) 
+[🐍👨🏾‍💻](https://colab.research.google.com/)
 
-![image](https://github.com/sbibek086/sbibek086/assets/11883023/b699d3aa-f26d-4fcb-96d2-c7d51db5731e)
+![image](https://github.com/rabinaSharp/rabinaSharp/assets/171541817/935e96ea-ff23-41dd-911a-9938fdce7d0c)
 
 ![image](https://github.com/rabinaSharp/rabinaSharp/assets/171541817/eb0bbb11-a0be-4554-b9ec-dc4fac23efa6)
 
